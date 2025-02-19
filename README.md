@@ -48,4 +48,3 @@ I can help you achieve your goals with the following skills:
 
 I'm always open to new opportunities and collaborations. If you're looking for a dedicated developer who can bring your blockchain and web development projects to life, feel free to reach out!
 
-[Add your contact information or preferred method of communication here]
