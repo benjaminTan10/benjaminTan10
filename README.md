@@ -27,6 +27,6 @@ I've also worked on various types of Decentralized Exchanges (DEXs), including E
 [👉widget](https://benjamin-widget.vercel.app/)
 
 1-470-543-2751
-member of devdudies 
+member of DEVDUDES team 
 ![Head mascot PNG](https://github.com/user-attachments/assets/7409c25f-77fd-4125-914b-167b128af7b0)
 
